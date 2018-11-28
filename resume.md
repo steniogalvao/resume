@@ -1,15 +1,15 @@
 # **_Stênio de Sousa Lima Galvão_** ![nationality](https://cdn1.iconfinder.com/data/icons/ensign-11/512/38_Ensign_Flag_Nation_brazil-24.png "Nationality")
 
 
-![email](https://cdn4.iconfinder.com/data/icons/aiga-symbol-signs/439/aiga_mail-16.png "Email") [steniogalvao@gmail.com]
+![email](https://cdn4.iconfinder.com/data/icons/aiga-symbol-signs/439/aiga_mail-16.png "Email") **steniogalvao@gmail.com**
 
-![phone](https://cdn4.iconfinder.com/data/icons/picons-social/57/23-whatsapp-2-16.png "Phone") [+400731734270]
+![phone](https://cdn4.iconfinder.com/data/icons/picons-social/57/23-whatsapp-2-16.png "Phone") **+400731734270**
 
-![skype](https://cdn3.iconfinder.com/data/icons/social-media/512/Skype_B-16.png "Skype") stenio.galvao
+![skype](https://cdn3.iconfinder.com/data/icons/social-media/512/Skype_B-16.png "Skype") **stenio.galvao**
 
-![location](https://cdn2.iconfinder.com/data/icons/ios-7-icons/50/location-16.png "current location") Bucharest,Romania
+![location](https://cdn2.iconfinder.com/data/icons/ios-7-icons/50/location-16.png "current location") **Bucharest,Romania**
 
-![Speak](https://cdn0.iconfinder.com/data/icons/simple-darkcon-1/92/chat-16.png "speak") *Portuguese*(fluent), *English*(Advanced), *Spanish*(Middle)
+![Speak](https://cdn0.iconfinder.com/data/icons/simple-darkcon-1/92/chat-16.png "speak") **Portuguese**(fluent), **English**(Advanced), **Spanish**(Middle)
 
 
 ## About
